@@ -1,4 +1,4 @@
-#  
+#  Experience sailor piece like never before with secure sailor piece Script, the #1 Script. Includes anti-ban and aimbot for unbeatable performance.
 
 
 
